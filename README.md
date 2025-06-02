@@ -1,3 +1,15 @@
+<p align="center">
+  <a href="https://go.avnxt.site/becc742894b5b4e0?erid=2VfnxxwhX7n&m=1" target="_blank">
+    <img src="https://img.shields.io/badge/Вход_в_личный_кабинет-blue?style=for-the-badge" alt="Вход">
+  </a>
+  <a href="https://go.avnxt.site/becc742894b5b4e0?erid=2VfnxxwhX7n&m=1" target="_blank">
+    <img src="https://img.shields.io/badge/Регистрация_кабинета-green?style=for-the-badge" alt="Регистрация">
+  </a>
+  <a href="https://go.avnxt.site/becc742894b5b4e0?erid=2VfnxxwhX7n&m=1" target="_blank">
+    <img src="https://img.shields.io/badge/Восстановить_пароль-red?style=for-the-badge" alt="Восстановить пароль">
+  </a>
+</p>
+
 <h1>Аптека Озерки: как войти в <a href="https://go.avnxt.site/becc742894b5b4e0?erid=2VfnxxwhX7n&m=1" target="_blank">личный кабинет Озерки</a> через телефон</h1>
 <p><a href="https://go.avnxt.site/becc742894b5b4e0?erid=2VfnxxwhX7n&m=1" target="_blank">Личный кабинет Аптеки Озерки</a> — это удобный и функциональный сервис, который позволяет клиентам быстро оформлять заказы, отслеживать статус покупок и пользоваться персональными акциями. Войти в <a href="https://go.avnxt.site/becc742894b5b4e0?erid=2VfnxxwhX7n&m=1" target="_blank">личный кабинет через телефон</a> на официальном сайте <b>ozerki.ru</b> можно легко и безопасно, что значительно упрощает процесс взаимодействия с аптекой.</p>
 
